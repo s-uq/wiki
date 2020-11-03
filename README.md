@@ -12,6 +12,9 @@ Es una pedagogía de objetivos, donde se enmarca una organización para darle
 cumplimiento a una tarea u obtener un producto.
 - Objetividad direccionada al conocimiento.
 
+![school-2761394_1920](https://user-images.githubusercontent.com/70041916/98039183-97d36d80-1e1e-11eb-933d-7ff462c4a606.jpg)
+
+
 ##Concepto Integrador:
 Permite generar conocimientos articulados con métodos coherentes, lógicos.
 Aborda los pre-saberes permitiendo que se den análisis y reflexiones. Se sustenta
