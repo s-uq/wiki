@@ -26,7 +26,7 @@ Las competencias laborales se hacen con fines pedagógicos, donde el docente
 pueda buscar la intención y forzarlas en las actividades curriculares.
 - Comportamientos, aptitudes y actitudes empleados en la vida laboral.
 
-![school-2761394_1920](https://user-images.githubusercontent.com/70041916/98039183-97d36d80-1e1e-11eb-933d-7ff462c4a606.jpg)
+
 
 Ser:
 Es la esencia de cada persona , la capacidad de generar sus propios
