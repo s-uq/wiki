@@ -38,6 +38,8 @@ Capacidad intelectual que posee cada persona, a través de su aprendizaje
 significativo y su experiencia personal.
 - Debemos tener la mente abierta a los cambios que se van presentando.
 
+![crayons-1445053_1920](https://user-images.githubusercontent.com/70041916/98292063-5ffa3080-1fac-11eb-84a5-53611e7a89d1.jpg)
+
 Ser Integro:
 Es la formación en valores que tiene cada persona, su actitud frente a diversas
 situaciones, que de ejemplo con su estilo de vida, que acepte cuando se
